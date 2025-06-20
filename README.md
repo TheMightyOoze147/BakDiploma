@@ -1,1 +1,1 @@
-# Dimloma
+# Diploma
